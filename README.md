@@ -3,7 +3,7 @@
 [carrd](https://journeyshipping.carrd.co/), if you want.
 ***
 ![clafairy](https://barbara.crd.co/assets/images/gallery27/d9ae176a_original.gif?v=66afe876) **int** *!*
-- !! __**pokemon**__, enstars (femstars), bandori, d4dj, proseka, overwatch
+- !! __**pokemon**__, enstars (femstars), bandori, d4dj, proseka, overwatch, greyskyshipping, journeyshipping *!* :DD
 
 ![exclamation](https://barbara.crd.co/assets/images/gallery27/907cca46_original.gif?v=66afe876) **dni** *!*
 - **free block**. blocking whoever i want. i won't tell you i'll block you, or why. it's not my responsibility!! 

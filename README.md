@@ -1,5 +1,5 @@
  # FOR PT.
-**salem**/valerie/**nate** *!* SEAsian (filipino.) ![kitty](https://gardenia.ju.mp/assets/images/gallery04/bae42580_original.gif?v=5608953f) she/it/they, ![agender](https://wilardo.crd.co/assets/images/gallery14/c4e7f3a0.jpg?v=d0e71742) ![lesbian](https://wilardo.crd.co/assets/images/gallery14/3e40b27e.jpg?v=d0e71742)
+**salem**/valerie/**grusha** *!* SEAsian (filipino.) ![kitty](https://gardenia.ju.mp/assets/images/gallery04/bae42580_original.gif?v=5608953f) she/it/they, ![agender](https://wilardo.crd.co/assets/images/gallery14/c4e7f3a0.jpg?v=d0e71742) ![lesbian](https://wilardo.crd.co/assets/images/gallery14/3e40b27e.jpg?v=d0e71742)
 [carrd](https://jrnys.carrd.co/), if you want. [I](https://scarletviolet.pokemon.com/en-us/characters/grusha/).
 ***
 ![clafairy](https://barbara.crd.co/assets/images/gallery27/d9ae176a_original.gif?v=66afe876) **int** *!*

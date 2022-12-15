@@ -10,7 +10,6 @@ blake or salem *!* SEAsian (filipino.) ![kitty](https://gardenia.ju.mp/assets/im
 - (minjun) \*side eye*
 
 ![drifloon](https://barbara.crd.co/assets/images/gallery27/d9ff1ba5_original.gif?v=66afe876) **byi** *!*
-- easily annoyed due to anger issues. i'm sorry if i randomly lash out/snap at you, i promise i'm not angry or anything.
 - despite me being easily annoyed, i can be annoying.
 - no tone tags needed, but if you need them yourself i can use it around you.
 

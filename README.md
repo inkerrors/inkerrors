@@ -1,6 +1,6 @@
  # FOR PT.
 blake or salem *!* SEAsian (filipino.) ![kitty](https://gardenia.ju.mp/assets/images/gallery04/bae42580_original.gif?v=5608953f) she/it/they, ![agender](https://wilardo.crd.co/assets/images/gallery14/c4e7f3a0.jpg?v=d0e71742) ![lesbian](https://wilardo.crd.co/assets/images/gallery14/3e40b27e.jpg?v=d0e71742)
-(remaking carrd, woops.)
+[CARRD](https://atfreezingtemps.carrd.co/)
 ***
 ![clafairy](https://barbara.crd.co/assets/images/gallery27/d9ae176a_original.gif?v=66afe876) **int** *!*
 - !! __**pokemon & pokepasta**__, enstars (femstars), bandori, d4dj, proseka, overwatch, greyskyshipping, journeyshipping *!* :DD

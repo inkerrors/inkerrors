@@ -7,7 +7,7 @@ jonah/blake *!* SEAsian (filipino.) ![kitty](https://gardenia.ju.mp/assets/image
 
 ![exclamation](https://barbara.crd.co/assets/images/gallery27/907cca46_original.gif?v=66afe876) **dni** *!*
 - **free block**. blocking whoever i want. i won't tell you i'll block you, or why. it's not my responsibility!! 
-- (minjun) \*side eye*
+- enstarries.. \*side eye*
 
 __MORE ABOUT ME..__ frequent hyperfixations,, i do __not__ take people who say slurs they can't reclaim lightly (unless it's an accident, and/or didn't know it was..) well. i will genuinely make fun of you. frequent bad moods and anger issues- i guess i can also be annoying??
 

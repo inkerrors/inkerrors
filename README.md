@@ -1,5 +1,5 @@
  # FOR PT.
-jonah/blake *!* SEAsian (filipino.) ![kitty](https://gardenia.ju.mp/assets/images/gallery04/bae42580_original.gif?v=5608953f) s(he)/it/they, agender, questioning
+jonah *!* SEAsian (filipino.) ![kitty](https://gardenia.ju.mp/assets/images/gallery04/bae42580_original.gif?v=5608953f) s(he)/it/they, agender, questioning
 [CARRD](https://atfreezingtemps.carrd.co/)
 ***
 ![clafairy](https://barbara.crd.co/assets/images/gallery27/d9ae176a_original.gif?v=66afe876) **int** *!*

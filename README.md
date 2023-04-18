@@ -1,4 +1,4 @@
  # FOR PT.
-16, he/it only, no label. and i'm genderqueer 
+17, it/he enby
 
-also, check my carrd out
+also, check my straw page out lolzies

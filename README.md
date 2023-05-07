@@ -1,4 +1,6 @@
  # FOR PT.
-17, it/he enby
+17, he/him
+no dni just dont be a freak and i wont block you
+🧼 💨#6488
 
-also, check my straw page out lolzies
+

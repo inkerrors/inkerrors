@@ -1,10 +1,2 @@
-just click on my carrd!!!!!!!!!MY RENTRY!!!!!! just click on my carrd!!!!!!!!!MY RENTRY!!!!!! 
-just click on my carrd!!!!!!!!!MY RENTRY!!!!!! 
-just click on my carrd!!!!!!!!!MY RENTRY!!!!!! 
-
-
-
-https://bundles.cc/hadeskid
-
-
+READ THIS (IMPORTANT IF YOU WANNA GET TO KNOW ME.): https://sonofhades.straw.page/
 

@@ -1,1 +1,1 @@
-What the cringe bro
+Strawpage remake in 10 years.
